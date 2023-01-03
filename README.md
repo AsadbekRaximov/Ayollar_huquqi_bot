@@ -1,4 +1,5 @@
 Ushbu loyihamiz sabab **Mohirfest22** xakatonida 3-o'rinni qo'lga kiritdik😊🥳
+Telegram botga link: https://t.me/Ayollar_huquqi_bot
 
 **Loyihamiz haqida**
 
