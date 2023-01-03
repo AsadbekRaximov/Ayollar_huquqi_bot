@@ -1,3 +1,5 @@
+Ushbu loyihamiz sabab **Mohirfest22** xakatonida 3-o'rinni qo'lga kiritdik😊🥳
+
 **Loyihamiz haqida**
 
 ![image](https://user-images.githubusercontent.com/121484707/210348130-b3714548-e0dc-484f-8a06-0dc91581fe8f.png)
